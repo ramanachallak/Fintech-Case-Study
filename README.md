@@ -8,4 +8,4 @@
 
 - Services for consumers, businesses, automotives and corporates.
 
-- A strong 
+- A strong tech suite.
